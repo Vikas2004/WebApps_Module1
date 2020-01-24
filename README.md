@@ -32,7 +32,7 @@ The above details are obtained from (https://www.wikipedia.org/)
 Image source from Slideshare.com
 
 
-Yuvraj Singh's achivements can be seen more here (https://www.jagranjosh.com/general-knowledge/yuvraj-singh-cricket-records-1560168216-1)
+Yuvraj Singh's achivements can be seen more here(https://www.jagranjosh.com/general-knowledge/yuvraj-singh-cricket-records-1560168216-1)
 
 Here are few images of yuvraj singh.
 
@@ -68,4 +68,4 @@ Images source from indiatoday, zimbio and The Hindu sites.
 [Instagram account](https://www.instagram.com/yuvisofficial/?hl=en)
 
 
-To know more about yuvraj singh click here (https://en.wikipedia.org/wiki/Yuvraj_Singh)
+To know more about yuvraj singh click here(https://en.wikipedia.org/wiki/Yuvraj_Singh)
