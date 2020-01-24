@@ -25,17 +25,34 @@ The above details are obtained from (https://www.wikipedia.org/)
 1. Started YOUWECAN foundation to provide facilities for those who are diagnoised with cancer.
  You can find more about the foundation here [YOUWECAN](https://en.wikipedia.org/wiki/YouWeCan)
  
+ 
+ 
  ![YOUWECAN LOGO](https://image.slidesharecdn.com/youwecan-140604115549-phpapp01/95/youwecan-yuvraj-singh-foundation-1-638.jpg?cb=1401883009)
+
 Image source from Slideshare.com
+
+
 Yuvraj Singh's achivements can be seen more [here](https://www.jagranjosh.com/general-knowledge/yuvraj-singh-cricket-records-1560168216-1)
 
 Here are few images of yuvraj singh.
+
+
 ![World Cup 2011](http://www4.pictures.zimbio.com/gi/Yuvraj+Singh+India+v+Netherlands+Group+B+2011+lEa4sbuv_6ul.jpg)
+
+
+
 ![Yuvi with World Cup](https://akm-img-a-in.tosshub.com/indiatoday/images/story/201612/yuvrajsingh_reuters_647_121216122350.jpg)
+
+
+
 ![Yuvi during retirement](https://th.thgim.com/news/cities/mumbai/164ly9/article27753153.ece/alternates/FREE_435/Yuvi)
+
 Images source from indiatoday, zimbio and The Hindu sites.
 
+
 [Twitter account](https://twitter.com/YUVSTRONG12?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)
+
+
 [Instagram account](https://www.instagram.com/yuvisofficial/?hl=en)
 
 
