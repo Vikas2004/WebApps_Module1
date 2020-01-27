@@ -9,17 +9,17 @@ Here are few basic details I would like to include here.
 * Top score 150
 
 
-## 1.Test Career
+## 2.Test Career
 * Started on 16 Oct 2003
 * Top score 169
 
 
-## 1.T20 Career
+## 3.T20 Career
 * Started on 13 Sep 2007
 * Top Score 77
 
 The above details are obtained from (https://www.wikipedia.org/)
-## 1.Achivements
+## 4.Achivements
 1. Holds record for scoring fastest 50 just in 12 balls.
 1. First All rounder to score 300 runs and 15 wickets in just one worldcup.
 1. Started YOUWECAN foundation to provide facilities for those who are diagnoised with cancer.
